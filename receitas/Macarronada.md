@@ -12,11 +12,11 @@
  - Queijo ralado a gosto
  
 ## Modo de preparo
-Em uma panela, coloque um fio de óleo e refogue a cebola e o alho picado.
-Acrescente a carne e refogue até ela ficar bem cozida e dourada.
-Junte o molho, as azeitonas e tempere com sal. Deixe cozinhar por mais 5 minutos.
-Em seguida, coloque coloque as folhinhas de manjericão e desligue o fogo.
-Sirva com o macarrão cozido (conforme as instruções da embalagem), finalize com queijo ralado.
+1. Em uma panela, coloque um fio de óleo e refogue a cebola e o alho picado.
+2. Acrescente a carne e refogue até ela ficar bem cozida e dourada.
+3. Junte o molho, as azeitonas e tempere com sal. Deixe cozinhar por mais 5 minutos.
+4. Em seguida, coloque coloque as folhinhas de manjericão e desligue o fogo.
+5. Sirva com o macarrão cozido (conforme as instruções da embalagem), finalize com queijo ralado.
 
 
 
